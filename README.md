@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Shuballs
 - 👀 I’m interested in computer engineering 
 - 🌱 I’m currently learning coding
-- 💞️ I’m looking to collaborate on stufslfs ig
+- 💞️ I’m looking to collaborate on stuffs ig
 - 📫 How to reach me just dm
 - 😄 Pronouns: ...
 - ⚡ Fun fact: im left handed
